@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Manumj7
+- 👀 I’m interested in Editing
+- 🧿 i'am a Freelance editor
+- 🌱 I’m currently learning HTML
